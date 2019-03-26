@@ -1,2 +1,2 @@
-# DABLABLOG
-Full log about DAB Lab.
+# Initial page
+
