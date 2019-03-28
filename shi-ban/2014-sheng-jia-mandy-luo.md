@@ -38,7 +38,7 @@ I am an Interaction Designer with over 3+ years of experience in virtual reality
 
 **Alive Grape**｜全國LED創意設計競賽 **入圍** 
 
-\*\*\*\*[**音。色**](https://www.youtube.com/watch?v=L6_ieuHP4UI)｜第六屆全國孕龍盃、崧騰盃遊戲與遊戲機設計比賽 **入圍**
+\*\*\*\*[**音。色**](https://www.youtube.com/watch?v=L6_ieuHP4UI)｜第六屆全國孕龍盃、崧騰盃遊戲與遊戲機設計比賽 **入圍 （證明）**
 
 \*\*\*\*[**RED PILL**](http://www.iii.org.tw/Press/NewsDtl.aspx?nsp_sqno=1550&fm_sqno=14)｜ Future City Workshop 2015 **入圍**
 
