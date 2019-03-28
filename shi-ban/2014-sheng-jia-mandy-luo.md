@@ -52,8 +52,6 @@ I am an Interaction Designer with over 3+ years of experience in virtual reality
 
 {% embed url="https://youtu.be/YGjcZVorvMo" %}
 
-
-
 {% embed url="https://youtu.be/JaBc016AHhY" %}
 
 ## 現職
